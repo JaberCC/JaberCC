@@ -12,6 +12,8 @@ Foi então que resolvi enveredar, de vez, na área. Atualmente estudo Análise e
 Sou colaborativo e consigo lidar bem com trabalhos em equipe.
 
 Aprecio a boa escrita e também tento me manter em dias com meus textos. Mantenho um blog onde escrevo meus poemas, meus textos e tudo o que vem a minha cabeça.
+https://jaberemboascompanhias.blogspot.com/<img width="40" height="40" alt="image" src="https://github.com/user-attachments/assets/688ad791-b55c-4c86-b0a8-6b414e76cab5" />
+
 
 Sou casado há 28 anos e pai de um rapaz muito inteligente.
 Sou Vascaíno (ninguém é perfeito 😂), me amarro em cães e gosto de cozinhar. <img width="150" height="100" alt="SmellBunnyGIF" src="https://github.com/user-attachments/assets/0af749b9-8ce7-42bf-bd65-cdeeb77e1042" />
