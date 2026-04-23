@@ -1,8 +1,7 @@
 ## Jáber Correia Campos
 
-### Fique a vontade para me conhecer um pouco.
-Natural de Salvador/Ba, já morei no Rio de Janeiro, Recife e Belo Horizonte.<img width="60" height="80" alt="MuaKissGIF" src="https://github.com/user-attachments/assets/9bec8979-ad05-49ce-b0a5-db787f601162" />
-
+### Fique a vontade para me conhecer um pouco.🔍
+Natural de Salvador/Ba, já morei no Rio de Janeiro, Recife e Belo Horizonte.
 
 Sou técnico em Logística e trabalho há 31 anos na Empresa Brasileira de Correios e Telégrafos.
 
@@ -15,7 +14,8 @@ Sou colaborativo e consigo lidar bem com trabalhos em equipe.
 Aprecio a boa escrita e também tento me manter em dias com meus textos. Mantenho um blog onde escrevo meus poemas, meus textos e tudo o que vem a minha cabeça.
 
 Sou casado há 28 anos e pai de um rapaz muito inteligente.
-Sou Vascaíno (ninguém é perfeito 😂), me amarro em cães e gosto de cozinhar.
+Sou Vascaíno (ninguém é perfeito 😂), me amarro em cães e gosto de cozinhar. <img width="150" height="100" alt="SmellBunnyGIF" src="https://github.com/user-attachments/assets/0af749b9-8ce7-42bf-bd65-cdeeb77e1042" />
+
 
 
 
