@@ -21,6 +21,8 @@ Sou Vascaíno (ninguém é perfeito 😂), me amarro em cães e gosto de cozinha
 <img width="150" height="100" alt="SmellBunnyGIF" src="https://github.com/user-attachments/assets/0af749b9-8ce7-42bf-bd65-cdeeb77e1042" />
 
 
+
+
 Vamos trocar uma ideia?
 
 [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/jaberc69/?hl=pt-br)
