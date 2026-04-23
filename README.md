@@ -16,9 +16,13 @@ Aprecio a boa escrita e também tento me manter em dias com meus textos. Mantenh
 
 
 Sou casado há 28 anos e pai de um rapaz muito inteligente.
-Sou Vascaíno (ninguém é perfeito 😂), me amarro em cães e gosto de cozinhar.
+Sou Vascaíno (ninguém é perfeito 😂),
+<img width="150" height="100" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTY4fqg9bUX44WlWWhdB1Ksm1JsiIFPFadMOg&s"/>
 
-<img width="150" height="100" alt="SmellBunnyGIF" src="https://github.com/user-attachments/assets/0af749b9-8ce7-42bf-bd65-cdeeb77e1042" />
+
+Me amarro em cães e gosto de cozinhar.
+
+<img width="150" height="110" alt="SmellBunnyGIF" src="https://github.com/user-attachments/assets/a667a176-a53c-4a3c-8e19-a86c940c3e68" />
 
 
 
