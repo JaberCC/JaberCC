@@ -12,7 +12,7 @@ Foi então que resolvi enveredar, de vez, na área. Atualmente estudo Análise e
 Sou colaborativo e consigo lidar bem com trabalhos em equipe.
 
 Aprecio a boa escrita e também tento me manter em dias com meus textos. Mantenho um blog onde escrevo meus poemas, meus textos e tudo o que vem a minha cabeça.
-[<img width="40" height="40" alt="image" src="https://github.com/user-attachments/assets/688ad791-b55c-4c86-b0a8-6b414e76cab5" />]https://jaberemboascompanhias.blogspot.com/)
+[<img width="40" height="40" alt="image" src="https://github.com/user-attachments/assets/688ad791-b55c-4c86-b0a8-6b414e76cab5" />](https://jaberemboascompanhias.blogspot.com/)
 
 
 Sou casado há 28 anos e pai de um rapaz muito inteligente.
