@@ -1,7 +1,8 @@
 ## Jáber Correia Campos
 
 ### Fique a vontade para me conhecer um pouco.
-Natural de Salvador/Ba, já morei no Rio de Janeiro, Recife e Belo Horizonte.
+Natural de Salvador/Ba, já morei no Rio de Janeiro, Recife e Belo Horizonte.<img width="250" height="280" alt="MuaKissGIF" src="https://github.com/user-attachments/assets/9bec8979-ad05-49ce-b0a5-db787f601162" />
+
 
 Sou técnico em Logística e trabalho há 31 anos na Empresa Brasileira de Correios e Telégrafos.
 
